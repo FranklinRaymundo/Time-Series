@@ -18,3 +18,18 @@ https://www.facebook.com/groups/466057206891641/permalink/954625378034819/?sale_
 https://www.facebook.com/groups/ofertaycompraporface/permalink/1151538608316869/?sale_post_id=1151538608316869
 
 https://plus.google.com/118248873813020752319/posts/YziahpwZqp4
+
+
+Zimbra:
+http://mail.tic.com.pe/
+
+VirtualApps:
+https://virtualapps.ingenieriadeseguridad.telefonica.com/Citrix/TisWeb/
+
+
+
+
+
+
+
+
