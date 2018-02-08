@@ -26,7 +26,8 @@ http://mail.tic.com.pe/
 VirtualApps:
 https://virtualapps.ingenieriadeseguridad.telefonica.com/Citrix/TisWeb/
 
-
+Hack:
+https://www.hackerearth.com/challenge/competitive/predict-the-criminal/machine-learning/predict-the-criminal/
 
 
 
